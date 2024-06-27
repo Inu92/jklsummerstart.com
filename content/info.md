@@ -42,7 +42,7 @@ You can register at the series you feel best suits you = ). You can also borrow 
 - 09:30-16:30 Games @ <a href="https://goo.gl/maps/VnzFxD57VsZtzLAo9"> <b><u>Viitaniemi</u></b></a>
 - 16:30 - Prize seremony
 
-## <a href="https://chat.whatsapp.com/HxawcwBjvM07IWKkzTHgWO"><b><u>Whatsapp-link</u></b></a>
+## LINK REMOVED!
 
 The whatsapp group is used for quick communication by the tournament organisers, but can also be used for player to player talk.
 
